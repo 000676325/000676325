@@ -1,7 +1,7 @@
-🦖 Hi, I’m @T-rexYT
-✴️ I’m interested in games and cyber security
-🌸 I’m currently learning ...morse code and coding
-😸 I’m looking to collaborate on games and virtual reality
-🈵otaku
-🇩🇴🇯🇵aesthetic yandere-deredere
-💚88 ( _... _._ _  . )
+☠️ Hi, I’m @T-rexYT
+🕷 I’m interested in game developing and cyber security
+🌑 I’m currently learning: javascript, 3D modeling in blender, and 
+🌙 I’m looking to collaborate on games and virtual reality
+♊️ I love anime~ and i like skateboarding and technology~
+🇩🇴Im dominican-american!
+🖤 Taken~
