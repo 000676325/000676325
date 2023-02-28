@@ -1,4 +1,4 @@
-☠️ Hi, I’m @T-rexYT
+☠️ Hi, I’m **myself**
 🕷 I’m interested in game developing and cyber security
 🌑 I’m currently learning: javascript, 3D modeling in blender, and 
 🌙 I’m looking to collaborate on games and virtual reality
